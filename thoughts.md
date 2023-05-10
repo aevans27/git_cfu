@@ -3,3 +3,5 @@
 
 - Manage time properly
 - Build something really cool
+
+-My wife has been there for me, and I am grateful
